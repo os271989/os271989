@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @os271989
+- 👋 Hi, I’m Oscar ;)
 - 👀 I’m interested in improve my programming skills
 - 📫 How to reach me -> oscararaujo27@gmail.com
 
